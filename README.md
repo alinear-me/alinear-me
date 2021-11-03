@@ -1,4 +1,4 @@
-Olá, Seja bem-vinde!! Eu sou Aline mas pode me chamar de Line, Li ou Mike Blue! 
+Olá, Seja bem-vinde!! Eu sou Aline mas pode me chamar de Line, Li! 
 
 
 
