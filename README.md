@@ -1,9 +1,9 @@
-Olá, Seja bem-vinde!! Eu sou Aline mas pode me chamar de Line, Li! 
+Olá, Seja bem-vinde!! Eu sou Aline mas pode me chamar de Line ou Li! 
 
 
 
 - 😊 ela/ele/dela/dele
-- ⚡ k-pop, séries, animes e jogos salvam o meu dia. 
+- ⚡ k-pop, animes e jogos salvam o meu dia. 
 
  <div>
   <a href="https://github.com/alinear-me">
