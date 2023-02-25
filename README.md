@@ -2,7 +2,7 @@ Olá, Seja bem-vinde!! Eu sou Aline mas pode me chamar de Line ou Li!
 
 
 
-- 😊 ela/ele/dela/dele
+- 😊 ela/dela
 - ⚡ k-pop, animes e jogos salvam o meu dia. 
 
  <div>
